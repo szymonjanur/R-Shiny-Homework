@@ -1,0 +1,1 @@
+https://janurszymon.shinyapps.io/prezentacja/?fbclid=IwAR1uOAKOOD3YfmTxApbqQ4y5aSput5aKFt8O6JgCFGswRTG7VuM_smF7cvg 
